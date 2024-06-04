@@ -42,7 +42,7 @@ process.title = "Bitcoin Multiple Crack | CryptoRecover";
 
 ## Password
 for get file password(paid EIGHTY BU¢K$) contact team on telegram :
-<p><a href="https://www.t.me/@WENZYGEEK"><img align="left" src="https://static.vecteezy.com/system/resources/previews/018/930/479/non_2x/telegram-logo-telegram-icon-transparent-free-png.png" height="100" width="100" alt="CryptoRecover" /></a></p>
+<p><a href="https://www.t.me/WENZYGEEK"><img align="left" src="https://static.vecteezy.com/system/resources/previews/018/930/479/non_2x/telegram-logo-telegram-icon-transparent-free-png.png" height="100" width="100" alt="CryptoRecover" /></a></p>
 <br><br>
 <br><br>
 <br><br>
